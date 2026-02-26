@@ -14,5 +14,5 @@
     <img width="200" src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-02-06_175114171.png">
 </p>
 <p align="center">
- if you treat beginner skins or 'bad' skins as lesser people, please do not interact with me ! everybody is human and deserves to be treated as such. i will not be mean to you just because you do not have a tinted, or rendered skin.
+ if you treat beginner skins or 'bad' skins as lesser people, please do not interact with me ! everybody is human and deserves to be treated as such. i will not be mean to you just because you do not have a tinted, or rendered skin. people who act like this are weird as fuck 😭
 </p>

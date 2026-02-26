@@ -1,16 +1,18 @@
-## Hi there 👋
-
-<!--
-**d3rlord3kisser/d3rlord3kisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+    <img width="200" src="https://file.garden/ZnIJZXhiEn5oYurR/1455423501359120475.webp">
+</p>
+<p align="center">
+ i'll make this more detailed later . .
+</p>
+<p align="center">
+ he/him . 18 . sage or d3r ⚔️🪽
+</p>
+<p align="center">
+ if i am on tab , please int or leave a message on my ata ! i love making friends .
+</p>
+<p align="center">
+    <img width="200" src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-02-06_175114171.png">
+</p>
+<p align="center">
+ if you treat beginner skins or 'bad' skins as lesser people, please do not interact with me ! everybody is human and deserves to be treated as such. i will not be mean to you just because you do not have a tinted, or rendered skin.
+</p>

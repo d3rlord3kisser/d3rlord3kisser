@@ -24,4 +24,4 @@
 
   <p align="center"><tt><fontsize=16> if we have cuddled / sat next to each other before, i will most likely sit with you again if i see you! it is on sight .nsrs </tt></fontsize>
     
-<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/Untitled63_20260401180747.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>
+<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-04-03_202348348.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>

@@ -15,7 +15,7 @@
 <br>
 <i> he/him . 18 . d3rlord3 irl & nonsharing yume </i></tt>
     
-<p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-06-06_192935546.png"> <p
+<p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-03-31_230351477.png"> <p
 
  <p align="center"> if you treat beginner skins or 'bad' skins as lesser people, please do not interact with me ! everybody is human and deserves to be treated as such. i will not be mean to you just because you do not have a tinted, or rendered skin. people who act like this are weird to me, why do we have a superiority complex on the pony game? <p
   
@@ -24,4 +24,4 @@
 
   <p align="center"><tt><fontsize=16> if we have cuddled / sat next to each other before, i will most likely sit with you again if i see you! it is on sight .nsrs </tt></fontsize>
     
-<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://f2.toyhou.se/file/f2-toyhou-se/images/120882335_AkQld3IbFtrNU0f.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>
+<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-06-06_192935546.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>

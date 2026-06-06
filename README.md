@@ -6,12 +6,12 @@
 <p align="center"><tt><fontsize=16> That a King loses to a Lord ? </tt></fontsize>
 <br> </br>
 <p align="center">
-    <img width="600" src="https://file.garden/ZnIJZXhiEn5oYurR/aaaa.png">
+    <img width="600" src="https://f2.toyhou.se/file/f2-toyhou-se/images/121180067_niJujs92BCl2KqR.png">
 <br> </br>
 <p align="center"> d3r / d3rlord3 / knight / red / sage <p
 <br>
 <b> <p align="center"> if i am on tab , please int or leave a message on my ata ! i love making friends . 
-  (ps. all art on this github was drawn by me! <3 ) </b>
+  (ps. all art on this github was either commissioned, or drawn by me! <3 ) </b>
 <br>
 <i> he/him . 18 . d3rlord3 irl & nonsharing yume </i></tt>
     
@@ -24,4 +24,4 @@
 
   <p align="center"><tt><fontsize=16> if we have cuddled / sat next to each other before, i will most likely sit with you again if i see you! it is on sight .nsrs </tt></fontsize>
     
-<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/Untitled108_20260429172114.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>
+<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://f2.toyhou.se/file/f2-toyhou-se/images/120882335_AkQld3IbFtrNU0f.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>

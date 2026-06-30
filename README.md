@@ -6,7 +6,7 @@
 <p align="center"><tt><fontsize=16> That a King loses to a Lord ? </tt></fontsize>
 <br> </br>
 <p align="center">
-    <img width="600" src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-06-06_193007529.png">
+    <img width="600" src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-06-29_223019271.png">
 <br> </br>
 <p align="center"> d3r / d3rlord3 / knight / red / sage <p
 <br>

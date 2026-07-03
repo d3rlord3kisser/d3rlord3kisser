@@ -8,7 +8,7 @@
 <p align="center">
     <img width="600" src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-06-29_223125359_500x500%20(2).png">
 <br> </br>
-<p align="center"> d3r / d3rlord3 / knight / red / sage <p
+<p align="center"> d3r / rhett / knight / red / sage <p
 <br>
 <b> <p align="center"> if i am on tab, please int or leave a message on my ata, i love making friends. 
   (ps. all art on this github was either commissioned, or drawn by me! <3 ) </b>

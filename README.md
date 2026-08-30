@@ -6,12 +6,12 @@
 <p align="center"><tt><fontsize=16> That a King loses to a Lord ? </tt></fontsize>
 <br> </br>
 <p align="center">
-    <img width="600" src="https://file.garden/ZnIJZXhiEn5oYurR/New%20Drawing%20(13).png">
+    <img width="600" src="https://file.garden/ZnIJZXhiEn5oYurR/New%20Drawing%20(14).png">
 <br> </br>
 <p align="center"> d3r / rhett / knight / red / sage <p
 <br>
 <b> <p align="center"> if i am on tab, please int or leave a message on my ata, i love making friends. 
-  (ps. all art on this github was drawn by me! ) </b>
+  (ps. all art on this github was drawn/commissioned by me ) </b>
 <br>
 <i> he/him . 18 . d3rlord3 irl & nonsharing yume </i></tt>
     
@@ -24,4 +24,4 @@
 
   <p align="center"><tt><fontsize=16> if we have cuddled/sat next to each other before, i will most likely sit with you again if i see you, it is on sight /silly </tt></fontsize>
     
-<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-08-07_193623344.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>
+<div><b>" You are real, <br> You are special . "</b><p align="center"><img width="300"src="https://file.garden/ZnIJZXhiEn5oYurR/image_2026-08-29_212139682.png"> <p align="right"><b>" Remember who you are . " </b></p></br></div>
